@@ -1,2 +1,1 @@
-# rb88-minigames
-Content for RB88 Minigames
+AMQl9wmvt4cVwd9oyFdO45AMk2eciiG1Uaq/tbew5NJ1nczf1REH+w==
